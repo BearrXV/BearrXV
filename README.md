@@ -5,7 +5,7 @@
 
   
   
-#####  ⊱　 [atabook](https://placeholder.atabook.org/) 　　　![](https://files.catbox.moe/y8qsao.png)　　　 rentrywip　꒱
+#####  ⊱　 [atabook](https://placeholder.atabook.org/) 　　　![](https://files.catbox.moe/y8qsao.png)　　　 [rentry](https://rentry.co/playceholderd)　꒱
 <p align="center"
 
 <img
